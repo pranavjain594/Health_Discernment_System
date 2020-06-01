@@ -80,9 +80,9 @@ All rights reserved by our team.
 
 
 ### Developers
+[**Pranav Jain**](https://www.linkedin.com/in/pranav-jain-0516ba195/)</br>
 [**Rituraj Saha**](https://www.linkedin.com/in/rituraj-saha/)</br>
 [**Ritam Barik**](https://www.linkedin.com/in/ritam-barik-557905195/)</br>
-[**Pranav Jain**](https://www.linkedin.com/in/pranav-jain-0516ba195/)</br>
 [**Anish Kumar**](https://www.linkedin.com/in/anish-kumar-6a5b60169/)</br>
 
 
